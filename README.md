@@ -1,10 +1,15 @@
 # ⚰️ NormalExpressions
 
+Pathfinding Adaptations / Techniques
+Modified Ear ["clicks"],
+Modified Eye ["zoom"],
+Figure / Ground
+
 Hadith focuses on a direct line of communication from PBUH and has many ratings that evaluate the transmission quality.  
 
 Bible normal expressions to get closer to the spirit of Jesus that makes sense conversationally or something like that. 
 
-Various forms of divination create a lot of spam.  
+Various forms of pathfinding create a lot of spam.  
 I have a modified ear and it clicks on bible passages or chapters.
 https://www.instagram.com/p/C1nMTIivoo9/?img_index=1
 
@@ -26,3 +31,4 @@ When Job’s three friends, Eliphaz the Temanite, Bildad the Shuhite and Zophar 
 ["therapy in a nutshell"] --> [Ruth 1:20] "Don't call me Naomi,” she told them. “Call me Mara, because the Almighty has made my life very bitter.
 # sail boat https://i.etsystatic.com/5883751/r/il/890830/3801954711/il_570xN.3801954711_sti5.jpg
 
+[ divination --> pathfinding ]  Some people specialize in the phenomenon of ayats, which are like blocks of information.  See audubon bird packaging on the glares on their eyes, for some reason, certain plants were associated with various positions in the eye, my guess it is to relay migration traffic or food locations or something like that.
